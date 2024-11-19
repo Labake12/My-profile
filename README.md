@@ -5,9 +5,9 @@
 - 🔭 Check out my Github projects: [Labake's github](https://github.com/Labake12)!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other software developers
-- 🥅 2023 Goals: Get a job! and break barriers with tech
+- 🥅 2025 Goals: Get a job! and break barriers with tech
 - ⚡ Fun fact: I love to read novels, and watch football
 
 ### Connect with me:
 
-My email - _labake@kibo.school_
+My email - _labakeadegoroye@gmail.com_
